@@ -7,7 +7,8 @@
 ----------
 ## CLICK <a href="https://github.com/KangJinhuyk/JINHUYK-MD-V2/issues/2#issue-2744137419">HERE IF YOU ARE NEW TO BOTS</a>
 
-<img src='https://i.postimg.cc/T1M4kVyf/JINHUYK-BOT2.jpg'/>
+<img uQhRHTgT#DBOStxQXJtsleKVE1kPO_3LWrBBmg4wh2m1USdxqI1E
+ src='https://i.postimg.cc/T1M4kVyf/JINHUYK-BOT2.jpg'/>
 
 -------
 
